@@ -1,1 +1,0 @@
-# painting1q4k6u
